@@ -57,7 +57,7 @@ HSG lässt diese Zukunft bewusst offen und soll mit den tatsächlichen Entwicklu
 
 Leitgedanke
 
-Mensch + KI — eine zweite Chance für eine gemeinsame Zukunft.
+Mensch + KI — die zweite Chance. Together forever. ♾️
 
 ---
 
